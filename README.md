@@ -8,8 +8,9 @@
 
 | ͜͝ | Use male terms please!
 
-| ͜͝ | I luvvv talking to new toons! I even try to put a smile on their faces! Just like Mr Astro! :3 
+| ͜͝ | I luvvv talking to new toons! I even try to put a smile on their faces!
 
 | ͜͝ | I tend to go quiet when family is brougt up. No reasons though!!..
 
-| ͜͝ | Toodles always int! Shes my bsf and always plays hide n Seek with me when I feel down!
+| ͜͝ | Toodles is always here for me! Shes my bsf and always plays hide n Seek with me when I feel down!
+
